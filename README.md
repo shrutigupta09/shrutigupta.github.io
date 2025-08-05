@@ -1,1 +1,1 @@
-# shrutigupta09.github.io
+# shrutigupta.github.io
